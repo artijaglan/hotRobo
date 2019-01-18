@@ -1,2 +1,3 @@
 # hotRobo
 Hey,techies. I'm here.
+Can we talk? I actually, want to know your world...
